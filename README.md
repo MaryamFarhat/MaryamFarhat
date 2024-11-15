@@ -1,0 +1,1 @@
+👋 Welcome to my GitHub profile! I'm Farhat Maryam, a passionate student of supply chain management and logistics technologies. Currently in my fourth year at the National School of Applied Science, I am actively working on projects aimed at optimizing the efficiency and resilience of supply chains.
